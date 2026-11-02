@@ -8,7 +8,7 @@
 
 
 <p align="center">
-  <img width="430" height="100”style="object-fit: cover; object-position: top;" alt="divider" src="https://github.com/user-attachments/assets/b869135e-bd98-431e-88d4-9d82cc057ac2" /><br />
+  <img width="430" height="160”style="object-fit: cover; object-position: top;" alt="divider" src="https://github.com/user-attachments/assets/b869135e-bd98-431e-88d4-9d82cc057ac2" /><br />
   <img width="100%" alt="sekil" src="https://github.com/user-attachments/assets/41c6b880-fae8-425a-bf49-166d49576e15" />
 </p>
 
