@@ -7,18 +7,8 @@
 
 
 
-<p align="center">
-  <img width="430" height="160”style="object-fit: cover; object-position: top;" alt="divider" src="https://github.com/user-attachments/assets/b869135e-bd98-431e-88d4-9d82cc057ac2" /><br />
-  <img width="100%" alt="sekil" src="https://github.com/user-attachments/assets/41c6b880-fae8-425a-bf49-166d49576e15" />
-</p>
+<img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/cbcf7c83-dcfb-43e0-9371-894bf61ae0e8" />
 
-
-
-
-
-
-
-    
 💝’ed[strᥲw](https://lowkeynerdxd.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/v4mpksses)◝✩[sρotιfყ ρᥣᥲყᥣιst](https://open.spotify.com/playlist/3Sbb5dMbBxZ7hbi3ZAGVHl?si=MTvkQ_vyROuQb9gmIXXsAA&utm_source=copy-link&pt=4ab66aab6d4f31d7c60884287f985e16&pi=nQRy0FjnQuG0-)
 
 <details>   <summary> ︵︵blinkies and stamps!!</p></summary><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/791e1607-415b-4186-be8e-17d070253f1e" />
