@@ -9,7 +9,7 @@
 
 <img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/cbcf7c83-dcfb-43e0-9371-894bf61ae0e8" />
 
-💝’ed[strᥲw](https://lowkeynerdxd.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/v4mpksses)◝✩[sρotιfყ ρᥣᥲყᥣιst](https://open.spotify.com/playlist/3Sbb5dMbBxZ7hbi3ZAGVHl?si=MTvkQ_vyROuQb9gmIXXsAA&utm_source=copy-link&pt=4ab66aab6d4f31d7c60884287f985e16&pi=nQRy0FjnQuG0-)
+💝’ed[strᥲw](https://lowkeynerdxd.straw.page) .☘︎ ݁˖[αтαвooĸ](https://rennxd.atabook.org/)◝✩[sρotιfყ ρᥣᥲყᥣιst](https://open.spotify.com/playlist/3Sbb5dMbBxZ7hbi3ZAGVHl?si=MTvkQ_vyROuQb9gmIXXsAA&utm_source=copy-link&pt=4ab66aab6d4f31d7c60884287f985e16&pi=nQRy0FjnQuG0-)
 
 <details>   <summary> ︵︵blinkies and stamps!!</p></summary><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/791e1607-415b-4186-be8e-17d070253f1e" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d7bcac59-5fd6-4507-85c7-44fcbd4bd910" />
