@@ -42,7 +42,8 @@ I enjoy being around my friends<3 i dont rly like being left out.I happen to hav
 </details>
     
 <img width="540" height="38" alt="image" src="https://github.com/user-attachments/assets/dbf59dee-ca87-4ae5-b7c3-89bc0acd5b3b" />
-
+check out my vid pls ok
+https://youtube.com/shorts/PxfgId2LdDQ?si=-JQU7BDSrGQYBcLU
 
 <!--
 **rennivsx/rennivsx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
