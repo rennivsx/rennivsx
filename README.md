@@ -42,5 +42,5 @@ I enjoy being around my friends<3 i dont rly like being left out.I happen to hav
 </details>
     
 <img width="540" height="38" alt="image" src="https://github.com/user-attachments/assets/dbf59dee-ca87-4ae5-b7c3-89bc0acd5b3b" />
-
-
+and uh check out my vid heh
+https://youtube.com/shorts/PxfgId2LdDQ?si=psVvSRne0lCrKEeC
